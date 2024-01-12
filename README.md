@@ -2,7 +2,7 @@
 - 👀 I’m interested in the destruction of the world
 - 🌱 I’m currently learning how to destroy the world
 - 💞️ I’m looking to collaborate on destroying the world
-- 📫 How to reach me at destroying_the_world@gmail.com
+- 📫 How to reach me at [worlddestruction.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 Pronouns: he/him/the destroyer of the world
 - ⚡ Fun fact: I have not destroyed the world yet
 
