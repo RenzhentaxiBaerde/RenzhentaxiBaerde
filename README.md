@@ -5,7 +5,7 @@
 - 📫 How to reach me at [worlddestruction.com](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - 😄 Pronouns: he/him/the destroyer of the world
 - ⚡ Fun fact: I have not destroyed the world yet
-
+- Got two Ws at Mahjong on Feb 29, 2024
 <!---
 RenzhentaxiBaerde/RenzhentaxiBaerde is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
